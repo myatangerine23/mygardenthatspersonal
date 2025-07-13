@@ -13,7 +13,7 @@
 
 ##### extended sixth sense stuff
 
-[[Magic systems/extended sixth sense stuff/SDED\|the sixth sense dimension disaster]]
+[[Magic systems/extended sixth sense stuff/SDED\|sixth dimensional energy disaster]]
 
 ###### sixth sense classifications:
 - [[Magic systems/extended sixth sense stuff/berserk sixth senses\|berserk sixth senses]]
