@@ -5,9 +5,8 @@
 
 
 
-**_Sixth senses_**
 
-**Sixth senses** are a By-Product of the **SDED**, they are the physical culmination of sixth-dimensional energy latching onto an anchor and making that 
+[[Magic systems/sixthsense general info/sixth senses\|sixth senses]] are a By-Product of the [[Magic systems/extended sixth sense stuff/SDED\|SDED]], they are the physical culmination of sixth-dimensional energy latching onto an anchor and making that 
 
 It ranges from Guns, Electricity out of your finger to entire beings that live within your head (EX: Okra, Moon), or the more severe cases, becoming an entire element.
 
