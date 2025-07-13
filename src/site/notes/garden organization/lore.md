@@ -3,4 +3,10 @@
 ---
 
 
-[[garden organization/Magic systems\|Magic systems]] e
+[[garden organization/Magic systems\|Magic systems]] 
+
+Worlds
+
+Races
+
+Bloodlines

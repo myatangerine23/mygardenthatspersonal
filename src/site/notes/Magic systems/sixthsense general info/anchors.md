@@ -10,11 +10,11 @@
 
 **Sixth sense Anchors**
 
-**anchors** can be described as someone's will. or more specifically, someone's desire. This let's [[Sixth senses.canvas|Sixth senses]] enter and stay within this world.
+**anchors** can be described as someone's will. or more specifically, someone's desire. This let's [[Sixth senses.canvas\|Sixth senses]] enter and stay within this world.
 
 they are either materialized when the desire of a sixth sense is strong. this causes an anchor to materialize in our dimension all by itself, with no direct host. 
 
-This allows the sixth sense to form on our dimension, and allows them to form however they'd like. which will give them the title of an [[Magic systems/sixthsense general info/independent sixth sense.\|independent sixth sense.]] it could be any desire. the desire to have form, the desire to live a comfortable life, the desire to be free.
+This allows the sixth sense to form on our dimension, and allows them to form however they'd like. which will give them the title of an [[Magic systems/sixthsense general info/independent sixth sense\|independent sixth sense]] it could be any desire. the desire to have form, the desire to live a comfortable life, the desire to be free.
 
 Sixth sense anchors are slightly egg shaped.
 They can be seen, felt, touched, and destroyed.
