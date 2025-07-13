@@ -11,9 +11,8 @@
 [[Magic systems/sixthsense general info/dependent sixth sense\|dependent sixth sense]]
 [[Magic systems/sixthsense general info/independent sixth sense\|independent sixth sense]]
 
-#### extended sixth sense stuff
+##### extended sixth sense stuff
 
----
 [[Magic systems/extended sixth sense stuff/SDED\|the sixth sense dimension disaster]]
 
 ###### sixth sense classifications:
@@ -25,3 +24,20 @@
 [[Magic systems/extended sixth sense stuff/sixth sense crystals\|sixth sense crystals]]
 [[Magic systems/extended sixth sense stuff/null crystals\|null crystals]]
 [[Magic systems/extended sixth sense stuff/sixth sense history\|sixth sense history]]
+
+---
+## Dispel
+blabla
+
+bllba
+blblalb
+lb
+
+---
+## genotovian magic
+awaww
+awawwa
+wawawa
+wawaw
+wawa
+wawa
