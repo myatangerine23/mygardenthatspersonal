@@ -3,6 +3,7 @@
 ---
 
 
-pusys! puyssy pussy AHHHHHHHHHHHHHHH FUCJKFUAKFSKFAJFHSKAJFHKSJFHASKFJ me oemowme emow
-i like deltarune
-PUBLISSSHHHH WRAAAHKRAHR
+welcome to my website??
+ idk if this is a website
+this is gna be used to host lore. here is the lore folder link.. 
+[[garden organization/lore\|lore]]
